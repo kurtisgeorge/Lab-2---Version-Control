@@ -59,6 +59,8 @@ Ingredients:
 - 2 cloves garlic, minced
 - Salt and pepper to taste
 - 1 jar (24 oz) spaghetti sauce
+- Fresh basil
+- 1 lemon
 
 Instructions:
 1. Cook spaghetti according to package instructions.
