@@ -113,3 +113,27 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Chocolate Snowballs
+- Sugar - 2 cups White or Brown
+- Butter - 3/4 cup melted
+- Evaporated milk - 1 1/4 cup
+- Unsweetened Coconut - 2 1/2 cups
+- Cocoa - 12 Tbsp
+- Vanilla - 1 Tsp
+- Rolled oats - 3 1/2 cups
+
+Instructions:
+
+Extra 1 1/2 cups of unsweetened coconut to roll snowballs in when made.
+
+- In a large saucepan, combine sugar, butter and evaporated milk.
+- Start the boiling on these ingredients on medium heat for 5 minutes until all the mixture reaches 230°f on a candy thermometer or until bubbling.
+- Turn off heat then start mixing the dry ingredients in with the wet mixture, oat, 1 cup coconut, and Cocoa continue mixing until all ingredients are combined then let cool for at less 2 hours.
+- Then roll your mixture in 1 inch balls, then roll the snowballs into your 1 1/2 cups of extra coconut until all your mixture are completed.
+
+Makes about 5 dozen snowballs, store your snowballs in the fridge or freezer.
+
+Please Note: You can substitute evaporated milk with another milk type.
+
+The amount of time to make the snowballs including cooling time will be about 2 1/2 hours.
