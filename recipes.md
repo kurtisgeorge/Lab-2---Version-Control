@@ -82,6 +82,7 @@ Ingredients:
 - Lettuce
 - Tomato
 - Mayonnaise
+- Fresh basil
 
 Instructions:
 1. Preheat grill to medium-high heat.
